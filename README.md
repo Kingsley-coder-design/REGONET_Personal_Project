@@ -1,3 +1,6 @@
+KINGSLEY EZE AGHANYA
+REGONET INDIVIDUAL PROJECT DEC. 2024
+
 Intervention Strategies for Child Health in African Countries
 1. Targeted Vaccination Enhancement Program
 The analysed data revealed significant correlations between vaccination rates and child mortality, highlighting vaccination as a critical intervention point.
